@@ -8,6 +8,6 @@
 3.  Люблю встречаться с друзьми. На встречах мы играем в основном в настольные игры, но иногда еще занимаемся взрослыми делами, например собираем стол и стулья:)
 
 Ну и чтобы завершить этот чудесный рассказ чем-то милым, я прикреплю картинку морской свинки
-![](https://www.google.com/url?sa=i&url=https%3A%2F%2Fru.freepik.com%2Fpremium-vector%2Fvector-cute-guinea-pig-cartoon-style_43121414.htm&psig=AOvVaw2ZtNApo78e_0b8aqJJmECL&ust=1732806195845000&source=images&cd=vfe&opi=89978449&ved=0CBQQjRxqFwoTCKjBhqnk_IkDFQAAAAAdAAAAABAJ)
+![](https://img.freepik.com/premium-vector/vector-cute-guinea-pig-cartoon-style_846317-812.jpg)
 
 
